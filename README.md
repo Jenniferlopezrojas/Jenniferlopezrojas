@@ -1,0 +1,4 @@
+- Hi,I’m @Jenniferlopezrojas
+- Artificial Intelligence 📚
+- Math,Physics & Computer Science application.
+- 🌌
